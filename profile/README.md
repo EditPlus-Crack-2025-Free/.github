@@ -66,6 +66,6 @@ EditPlus Crack serials
 
 # EditPlus Pricing & Availability:
 
-EditPlus is a paid software with a free trial available. You can download it from the official EditPlus website.
+EditPlus is a paid software with a free trial available. You can download it from the official **[EditPlus website](https://editplus.com/download.html)**.
 
 This project provides a cracked version of EditPlus Crack, enabling users to use the premium features without purchasing a license!
